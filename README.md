@@ -1,0 +1,1 @@
+ödevin kod diziniidir saygılar,
